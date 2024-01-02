@@ -1,0 +1,1 @@
+# tafsire-quran-kurdish
